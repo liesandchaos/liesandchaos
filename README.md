@@ -10,7 +10,7 @@
 
 ㅤㅤㅤi'm taken by my lovely partner mhm. i love my spouse hi guys
 
-ㅤㅤㅤㅤㅤi have diagnosed combined (= my spine is in the shape of an s) mild scoliosis so i have backpain sometimes and i have to wear a medical corset/brace to sleep,, idm questions if ure curious about scoliosis! *(no idea why im putting this here but yh.)*
+ㅤㅤㅤㅤㅤi have diagnosed combined (= my spine is in the shape of an s) mild scoliosis so i have backpain sometimes and i have to wear a medical corset/brace to sleep,, i also have kinesiotherapy (= otherwise known as *movement therapy*) sessions every two weeks on friday at 4pm my time so im not online around that time !ㅤㅤ idm questions if ure curious about scoliosis!
 
 ㅤㅤㅤi'm a moderator for like two discord servers so half the time i'm offtab if i'm on pt . yh ik im a discordmod 😞
 
