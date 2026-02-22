@@ -2,19 +2,19 @@
 # @ INFO ノ GENERAL
 
 ### ㅤㅤㅤㅤ⹂Okay, hot stuff! Do your thing!”ㅤㅤㅤㅤㅤㅤㅤ.
-ㅤㅤhihiii ,,,!!! call me crepe or strawberry
+ㅤㅤhihiii ,,,!!! call me crepe or strawberry!! although, MOST of my friends call me crepe so i encourage calling me that more often okay..
 
-ㅤㅤㅤㅤㅤㅤㅤalthough, MOST of my friends call me crepe so i encourage calling me that more often okay..
-
-ㅤㅤㅤ14+ yo minor , won't specify age for privacy .ㅤㅤㅤㅤbday: 24/03 <3
+ㅤㅤㅤ14+ yo minor , won't specify age for privacy .ㅤㅤㅤㅤ24/03 <3
 
 ㅤi mainly use she/her/hers and he/him/his pronouns , so please don't use others
+
+ㅤㅤㅤi'm taken by my lovely partner mhm. i love my spouse
 
 ㅤㅤㅤㅤㅤi have diagnosed combined (= my spine is in the shape of an s) mild scoliosis so i have backpain sometimes and i have to wear a medical corset/brace to sleep,, idm questions if ure curious about scoliosis!
 
 ㅤㅤㅤi'm a moderator for like two discord servers so half the time i'm offtab if i'm on pt . yh ik im a discordmod 😞
 
-ㅤㅤㅤㅤㅤi have a habit of lying for fun . yeah
+ㅤㅤㅤㅤㅤPLEASEEE bmf im BEGGING you
 
 ㅤㅤㅤㅤㅤㅤㅤㅤcheck out my [pronouns.cc](https://pronouns.cc/@liesandchaos) page for more specific info ok. hi
 
