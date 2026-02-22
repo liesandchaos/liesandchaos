@@ -18,8 +18,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤcheck out my [pronouns.cc](https://pronouns.cc/@liesandchaos) page for more specific info ok. hi
 
-<code style="color : aqua">text</code>
-
 # @ INFO ノ DNI LIST
 ㅤㅤ+ basic dni
 
