@@ -2,19 +2,15 @@
 # @ INFO ノ GENERAL
 
 ### ㅤㅤㅤㅤ⹂Okay, hot stuff! Do your thing!”ㅤㅤㅤㅤㅤㅤㅤ.
-ㅤㅤhihiii ,,,!!! call me crepe or strawberry!! although crepe is my most used nn so i encourage calling me that more often okayyy.. 
+ㅤㅤcrepe or strawberry .ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![Cookie0605-cookie0605-hang](https://github.com/user-attachments/assets/fed547ab-709f-4066-95d1-c9fcd09253f6)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![Cookie0605-cookie0605-hang](https://github.com/user-attachments/assets/fed547ab-709f-4066-95d1-c9fcd09253f6)
+ㅤㅤㅤ14+ yo minorㅤㅤㅤノㅤㅤㅤ24/03
 
-ㅤㅤㅤ14+ yo minor , won't specify age for privacy .ㅤㅤㅤノㅤㅤㅤ24/03
+ㅤshe/her or he/him
 
-ㅤi mainly use she/her/hers and he/him/his pronouns , please don't use others
+ㅤㅤㅤc+h encouraged , offtab usually
 
-ㅤㅤㅤi have diagnosed combined (= my spine is in *the shape of an s*) moderate scoliosis so i have backpain sometimes and might leave randomly because of it ! i also have kinesiotherapy (= otherwise known as *movement therapy*) sessions every two weeks on friday at 4pm my time so im not online around that time !ㅤㅤ idm questions if ure curious about scoliosis!
-
-ㅤㅤㅤi'm a moderator for like two discord servers so half the time i'm offtab if i'm on pt . yh ik im a discordmod dontshamemeplease😞
-
-ㅤㅤㅤㅤㅤi'm terribly sorry if i make any1 uncomfortable,, please tell me directly if i have made u uncomf + my memory is BUNS so im sorry if i misremember / don't remember anything about u at all if we met recently </3
+ㅤㅤㅤㅤㅤi'm terribly sorry if i make any1 uncomfortable,, please tell me directly if i have made u uncomf
 
 ㅤㅤㅤㅤㅤㅤㅤㅤcheck out my [pronouns.cc](https://pronouns.cc/@liesandchaos) page for more specific info ok. hi
 
@@ -36,12 +32,11 @@
 # @ INFO ノ INT
 ㅤㅤliterally anyone NOT mentioned in my dni list ! please PLEASE int with me i'm sooo lonely pls.
 
-ㅤㅤㅤㅤㅤㅤㅤi NEVER int first unless we're like close friends; please don't expect me to make the first move like EVER. im super shy n socially awkward+anxious soo
+ㅤㅤㅤㅤㅤㅤㅤi NEVER int first unless we're like close friends
 
-ㅤㅤㅤi genuinely do not mind hanging out with new people as long as you're not exactly *annoying* (imo) when we first meet ^_^ ![Cookie0605-cookie0605-personal1](https://github.com/user-attachments/assets/985ac781-8a40-45c1-b117-a026e2d60908)
-im sorry but i only communicate well and feel well around people that have proven that they r AMAZING to be around (looking at my platonic familyyyyyy !! love u guys /p)
+ㅤㅤㅤi genuinely do not mind hanging out with new people
 
-i use tone tags alot because i overthink about people not getting that i say this sarcastically or that as a joke n wtv
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Cookie0605-cookie0605-personal1](https://github.com/user-attachments/assets/985ac781-8a40-45c1-b117-a026e2d60908)
 
 # @ INFO ノ WARNING
 <details>
