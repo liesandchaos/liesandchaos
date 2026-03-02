@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
- crepe ノ strawberry . 14+ minor‎ .  
+ crepe ノ caden . 14+ minor‎ .  
 </p>
 <p align="center">
  24 ノ 03‎ .‎ ‎ ‎ smilk fictionkin‎ ノ bsapph & pvanilla yume‎ .
